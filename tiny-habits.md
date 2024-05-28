@@ -15,7 +15,7 @@ The most interesting story was when Fogg illustrates how starting with very smal
 
 Celebrating after completing a habit is important because it creates positive feelings, reinforcing the behavior. This triggers the release of dopamine in our brain, making us feel good and strengthening the connection to the new habit. Over time, this positive reinforcement helps the habit become automatic.
 
-## In this video, what was the most interesting story or idea for you?
+## In this video, what was the most interesting story or idea for me?
 
 In James Clear's "1% Better Every Day" video, the most interesting idea is focusing on making small, daily improvements. By getting just 1% better each day, these small changes add up to significant progress over time. This approach is practical and motivating, making it easier to maintain good habits and achieve long-term success.
 
