@@ -47,7 +47,7 @@ To sleep better, stick to a consistent sleep schedule, create a relaxing bedtime
 2. Exercise stimulates the release of chemicals that improve mood and reduce feelings of stress and anxiety.
 3. Physical activity increases the production of growth factors that support the growth and maintenance of brain cells.
 4. Exercise boosts blood flow to the brain, delivering oxygen and nutrients that are essential for optimal brain function.
-Regular exercise has been linked to a reduced risk of cognitive decline and may help protect against neurodegenerative diseases like Alzheimer's.
+5. Regular exercise has been linked to a reduced risk of cognitive decline and may help protect against neurodegenerative diseases like Alzheimer's.
 
 # What are some steps you can take to exercise more?
 1. Set Clear Goals: I define specific fitness objectives.
